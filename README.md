@@ -1,5 +1,3 @@
-# Hello, and welcome to my corner of GitHub.
-
 It's genuinely cool of you to swing by. Most people have better things to do.
 
 I still remember my ICQ number (34535176), yet I routinely forget why I walked into the kitchen. Such is the human condition.
